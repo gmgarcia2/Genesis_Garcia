@@ -1,2 +1,0 @@
-# Genesis_Garcia
-Portafolio
